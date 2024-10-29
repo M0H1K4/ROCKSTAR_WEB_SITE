@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/e253f14d-fdff-40b7-a2f8-d963603ff66c)# What is inside? watch bellow
+# What is inside? watch bellow
 
 
 
